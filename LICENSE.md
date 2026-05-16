@@ -1,4 +1,4 @@
-# 
+# advanced nft wash trading bot | auto-sell + auto-buy is the best nft wash trading bot, featuring auto-sell and auto-buy. Fast, smart, and optimized for NFT trading on marketplaces
 
 
 
